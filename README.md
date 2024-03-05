@@ -7,22 +7,37 @@
 
 
 # ✦ ⋱ CAMILO  〜     TANGERINE .
-### *preferred* ⤷ ㅤ **he** ノ **they**  ㅤ  ♯ ㅤㅤ*transmasc*,  istp-t 
-![spotify](https://open.spotify.com/user/31i7vclqadwhm65lvqzjuatyc3iq?si=4aedffdbae14461b), ![discord](https://discord.com/users/771868910844117002), ![rentry](https://rentry.co/rromantictangerine)
+###  ㅤ **he** ノ **they**  ㅤ  ♯ ㅤㅤ*transmasc*,  istp-t 
+ ㅤ  ㅤ **↜ preferred**, but any is *okay* too
+ 
+ ㅤ  ㅤ socials *[spotify](https://open.spotify.com/user/31i7vclqadwhm65lvqzjuatyc3iq?si=4aedffdbae14461b), [discord](https://discord.com/users/771868910844117002), [rentry](https://rentry.co/rromantictangerine)*
+
+ ㅤ 
+  ㅤ 
+> [Personal](https://github.com/romantictangerine#before-you-interact)
+> 
+> [Ponytown](https://github.com/romantictangerine#ponytown)
 
 
 ![](https://64.media.tumblr.com/d615581e504a361a1f0a4387e4252f3d/981e193c1ba2a2e0-24/s500x750/579e8e2914d2f835ae293c64d30053e90231acc2.gifv)
 
+>" Weakling, weakling! Did you think you ever stood a chance?! *Fool*.ᐟ ,,
+
+
 ## BEFORE YOU INTERACT
 - i am terrible at introducing myself or making good convos, so i might js come out as quiet if i just met you
-- i do jokes w suicide (either abt me or someone else) often, if ur not comfortable w this you can tell me and ill avoid it with you. 
+- i do jokes w suicide (either abt me or someone else) often, if ur not comfortable w this you can tell me and ill avoid it with you.
+
 
 ## DO **NOT** INTERACT 
 - basic dni criteria
 - pedo, zoo
 - if you self-diagnosis urself (if its a joke then i rlly dont care)
 
+
 ![](https://64.media.tumblr.com/c4dae9b43ba10cf9ace129b36b2ee5e9/76d8d2234287670b-e2/s250x400/cd95d96f45636748363b39b7a9bdbb0dd11a0799.gifv)
+
+>" You fools! Don't you wish to tame the sun?! Don't you wish to dominate creation!? *Don't you wish to not fear anything!?* ,,
 
 ## LIKES
 - jjba
@@ -38,12 +53,16 @@
 ## MUSIC TASTE
 - deftones
 - doja cat
-- the smiths
+- panic! at the disco
+- linked horizon
 - kmfdm
 - korn
 - n like so much stuff more but i no no wanna
 
 ![](https://64.media.tumblr.com/4b8eaa39b1dc97b6f5241b045b5ca9ec/0d9d6392a423e969-0c/s500x750/a79a060e378bce57436289dfda93f6239beb670b.gifv)
+
+>" Do you think this world *has a future?* ,,
+
 
 # PONYTOWN
 
