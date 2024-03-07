@@ -68,7 +68,7 @@
 
 
 ## BOUNDARIES
-- i dont mind anyone sitting with me or interacting, *as long as you dont make me or other umcomfortable*
+- i dont mind anyone sitting with me or interacting, *as long as you dont make me or others uncomfortable*
 - i dont mind if you take inspo from my ponies, but do mind that i will hide you if you copy mine or someone elses pony
 - crowns and/or any type of compliment is appreciated!!
 - if its going to be small talk or critism please *dont*. im fine with any type of critism about my ponies or anything if we are close enough
@@ -77,6 +77,6 @@
 ### STATUS MEANING
 - Online: fully active, i never have this on
 - Away: i am active but i might also be off-tab for short periods of time
-- Busy: i am checking ponytown but im not going to be really active, *i usually forget to change from busy to away*
+- Busy: not active, i wont check that much
 
 ![](https://64.media.tumblr.com/2fc92959e65e044919394f254d3043ea/197f12fa82e27886-44/s500x750/610c63f8ea9d79c060fc6caa99e63003ad6b4224.gifv)
