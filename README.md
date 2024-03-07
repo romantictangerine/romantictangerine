@@ -66,9 +66,6 @@
 
 # PONYTOWN
 
-> usually around as
-> 
-> ![](https://media.discordapp.net/attachments/773077098029776916/1212894705562427472/ezgif-1-2d49fda1f6.gif?ex=65f37f38&is=65e10a38&hm=fa2bbfcf128225a72bbed55f7a83f99ecb9995e13a9ba176b39daafa191b4d26&=)
 
 ## BOUNDARIES
 - i dont mind anyone sitting with me or interacting, *as long as you dont make me or other umcomfortable*
