@@ -10,7 +10,7 @@
 ###  ㅤ **he** ノ **they**  ㅤ  ♯ ㅤㅤ*transmasc*,  istp-t 
  ㅤ  ㅤ **↜ preferred**, but any is *okay* too
  
- ㅤ  ㅤ socials *[spotify](https://open.spotify.com/user/31i7vclqadwhm65lvqzjuatyc3iq?si=4aedffdbae14461b), [discord](https://discord.com/users/771868910844117002), [rentry](https://rentry.co/rromantictangerine)*
+ ㅤ  ㅤ  *[spotify](https://open.spotify.com/user/31i7vclqadwhm65lvqzjuatyc3iq?si=4aedffdbae14461b), [discord](https://discord.com/users/771868910844117002), [rentry](https://rentry.co/rromantictangerine)*
 
  ㅤ 
   ㅤ 
