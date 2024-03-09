@@ -66,6 +66,7 @@
 
 # PONYTOWN
 
+i mostly have local chat *on*, so even though i prefer whispers i might not see yours if the chat is really active!! (i will literally do everything i can to get back to you once i see your message)
 
 ## BOUNDARIES
 - i dont mind anyone sitting with me or interacting, *as long as you dont make me or others uncomfortable*
