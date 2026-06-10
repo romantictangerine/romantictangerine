@@ -39,9 +39,10 @@
 >" You fools! Don't you wish to tame the sun?! Don't you wish to dominate creation!? *Don't you wish to not fear anything!?* ,,
 
 ## INTERESTS
-- jjba
 - rdr
 - l4d
+- jjba
+- emh
 - osu
 - drawing
 - editing
