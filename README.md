@@ -1,78 +1,87 @@
-
-
-![](https://64.media.tumblr.com/d5d16a7847965f2d864108dc3f034bc4/6468d1b912a28cc0-e7/s500x750/866c0b034d12e7d3820e3213ebb2dc2961dd70b4.pnj)
-
-![](https://media.discordapp.net/attachments/773077098029776916/1212898459544330270/Untitled33_20240229200455.png?ex=65f382b7&is=65e10db7&hm=4dec4094045cbf44435206c19176fe680a6fa67f35dff1590a73ccefa910f2c3&=&format=webp&quality=lossless)
+![](https://github.com/user-attachments/assets/d45462e0-d5bb-4df8-8cb0-2aebf6201b3a)
 
 
 
-# ✦ ⋱ CAMILO  〜  _**VAN**_   .
-###  ㅤ **he** ノ **they**  ㅤ  ♯ ㅤㅤ*esp/eng*,  isfp-t 
- ㅤ  ㅤㅤㅤㅤㅤㅤㅤ **↜ㅤ avoid *her***
+
+#  <p align="center">  𐔌 ㅤ  ᛝ ㅤㅤ  VAN ㅤ .ᐟ ㅤ 𐂯  </p>
+
+
+### <p align="center"> **he** ノ **they**  ㅤ  ♯ ㅤㅤ*esp/eng*,  isfp-t </p>
+#### <p align="center"> **[spotify](https://open.spotify.com/user/31i7vclqadwhm65lvqzjuatyc3iq?si=4aedffdbae14461b)ㅤ ⋮ ㅤ[discord](https://discord.com/users/755174399304269835)** </p>
+
+###### <p align="center"> read these 
+
  
- ㅤ  ㅤ              *[spotify](https://open.spotify.com/user/31i7vclqadwhm65lvqzjuatyc3iq?si=4aedffdbae14461b), [discord](https://discord.com/users/755174399304269835)*
-
- ㅤ 
+<sup> <p align="center">  [personal](https://github.com/vanderker/vanderker/edit/main/README.md#--before%E3%85%A4%E3%85%A4%E3%85%A4-you-%E3%85%A4%E3%85%A4%E3%85%A4interact-)ㅤㅤ⤶ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⤷ㅤㅤ [in-game](https://github.com/vanderker/vanderker/edit/main/README.md#-do-%E3%85%A4%E3%85%A4%E3%85%A4not-%E3%85%A4%E3%85%A4%E3%85%A4interact) </p> </sup>
   ㅤ 
-> [Personal](https://github.com/vanderker#before-you-interact)
-> 
-> [Ponytown](https://github.com/vanderker#ponytown)
-
-
-![](https://64.media.tumblr.com/d615581e504a361a1f0a4387e4252f3d/981e193c1ba2a2e0-24/s500x750/579e8e2914d2f835ae293c64d30053e90231acc2.gifv)
-
->" Weakling, weakling! Did you think you ever stood a chance?! *Fool*.ᐟ ,,
-
-
-## BEFORE YOU INTERACT
-- i am terrible at introducing myself or making good convos, so i might js come out as quiet if i just met you
-- some of my jokes might not be considered as 'nice' **(?)** so, please let me know if this bothers you, i will fix it *♡*
-
-
-## DO **NOT** INTERACT 
-- i do not have a fixed dni, but basic dni i guess
 
 
 
-![](https://64.media.tumblr.com/c4dae9b43ba10cf9ace129b36b2ee5e9/76d8d2234287670b-e2/s250x400/cd95d96f45636748363b39b7a9bdbb0dd11a0799.gifv)
-
->" You fools! Don't you wish to tame the sun?! Don't you wish to dominate creation!? *Don't you wish to not fear anything!?* ,,
-
-## INTERESTS
-- rdr
-- l4d
-- jjba
-- emh
-- osu
-- drawing
-- editing
 
 
-## MUSIC TASTE
-- deftones
-- kmfdm
-- los bunkers
-- some others
 
-![](https://64.media.tumblr.com/4b8eaa39b1dc97b6f5241b045b5ca9ec/0d9d6392a423e969-0c/s500x750/a79a060e378bce57436289dfda93f6239beb670b.gifv)
-
->" Do you think this world *has a future?* ,,
+ ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
 
 
-# PONYTOWN
 
-i mostly have local chat *on*, so even though i prefer whispers i might not see yours if the chat is really active (i will literally do everything i can to get back to you once i see your message)
 
-## BOUNDARIES
-- i dont mind anyone sitting with me or interacting, *as long as you dont make me or others uncomfortable*
-- i dont mind if you take inspo from my ponies, but do mind that i will hide you if you copy mine or someone elses pony
-- crowns and/or any type of compliment is appreciated!!
-- if its going to be small talk or critism please *dont*. im fine with any type of critism about my ponies or anything if we are close enough
-- INTERACT IWTH ME prays rolls around the floor and explodes
+## <p align="center">  **BEFOREㅤㅤㅤ YOU ㅤㅤㅤINTERACT** </p>
+<p align="center"> i have trouble socializing, so i might be quiet if i just met you </p>
+<p align="center"> i also make nasty jokes once i get more friendly with somebody, 
+<p align="center"> ㅤ   ㅤㅤif this bothers you please let me know, i will fix it ♡
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+ 
+ ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
 
-### STATUS MEANING
-- Online: fully active, i never have this on
-- Away: i am active but i might also be off-tab for short periods of time
-- Busy: not active, i wont check that much
+## <p align="center"> **DO ㅤㅤㅤNOT ㅤㅤㅤINTERACT**
+<p align="center"> i do *not* have a fixed dni, and i don't plan on having one
+<p align="center"> this doesn't mean i will friend anyone, if i dont like you i will block you, or just avoid
 
-![](https://64.media.tumblr.com/2fc92959e65e044919394f254d3043ea/197f12fa82e27886-44/s500x750/610c63f8ea9d79c060fc6caa99e63003ad6b4224.gifv)
+ ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
+
+## <p align="center"> INTERESTS
+### <p align="center"> **mediaㅤ ⋮ ㅤmusic**
+<p align="center">ㅤ  rdrㅤ ㅤdeftones ㅤ
+<p align="center">ㅤ  l4dㅤ ㅤlos bunkers ㅤ
+<p align="center"> ㅤjjbaㅤ ㅤkmfdm ㅤ
+
+### <p align="center"> personal
+<p align="center"> drawing, editing, creating/editing carrd, rentry and githubs
+<p align="center"> sleeping, and playing games all day long 
+
+
+
+ ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
+
+# <p align="center"> IN-GAME
+<p align="center"> I'm usually on safe servers,  near the Sonic the hedgehog zone
+<p align="center"> if i'm not afk, i am most likely making ponies </p>
+
+> [!CAUTION]
+> **BE AWARE**, i am not always active on ponytown! If you send me a whisper, i might not answer inmediatly, *sorry!*
+<p align="center"> 
+
+ ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
+
+## <p align="center"> BOUNDARIES
+#### <p align="center"> c + h is *okay!*, inspo is also okay, but copying my (or other peoples) ponies is not, i will hide you and feed you to my cat </p>
+#### <p align="center"> i do not like spammers, i will hide you. and please, no small talk!!!!!!!!!! i will kill myself
+##### <p align="center"> crowns and/or any type of compliment is appreciated! thank you so much ***♡***
+###### <p align="center"> please interact with me prays rolls around the floor and dies
+
+ ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
+
+## <p align="center"> STATUS MEANING 
+<p align="center"> online = i never have this on, this would mean im completely active 
+<p align="center"> away = semi-active, i will get to you in a few mins, or completely active also!
+<p align="center"> busy = completely inactive, i am working on things and won't be answering
+<p align="center"> any of these + sleeping = i am away, i will be right back!!!
+
+<p align="center"> 
+ 
+![](https://github.com/user-attachments/assets/bf83fd63-d661-45f6-942e-8738ba2264f2)
+
+###### <p align="center"> none of the pictures used in this readme are mine, credits to the creators.
