@@ -6,11 +6,11 @@
 
 
 
-# ✦ ⋱ CAMILO  〜     TANGERINE .
-###  ㅤ **he** ノ **they**  ㅤ  ♯ ㅤㅤ*transmasc*,  istp-t 
- ㅤ  ㅤ **↜ preferred**, but any is *okay* too
+# ✦ ⋱ CAMILO  〜   _**VAN**_   .
+###  ㅤ **he** ノ **they**  ㅤ  ♯ ㅤㅤ*esp/eng*,  isfp-t 
+ ㅤ  ㅤㅤㅤㅤㅤㅤㅤ **↜ㅤ avoid *her***
  
- ㅤ  ㅤ  *[spotify](https://open.spotify.com/user/31i7vclqadwhm65lvqzjuatyc3iq?si=4aedffdbae14461b), [discord](https://discord.com/users/771868910844117002), [rentry](https://rentry.co/rromantictangerine)*
+ ㅤ  ㅤ              *[spotify](https://open.spotify.com/user/31i7vclqadwhm65lvqzjuatyc3iq?si=4aedffdbae14461b), [discord](https://discord.com/users/755174399304269835)*
 
  ㅤ 
   ㅤ 
@@ -26,38 +26,32 @@
 
 ## BEFORE YOU INTERACT
 - i am terrible at introducing myself or making good convos, so i might js come out as quiet if i just met you
-- i do jokes w suicide (either abt me or someone else) often, if ur not comfortable w this you can tell me and ill avoid it with you.
+- some of my jokes might not be considered as 'nice' **(?)** so, please let me know if this bothers you, i will fix it *♡*
 
 
 ## DO **NOT** INTERACT 
-- basic dni criteria
-- pedo, zoo
-- if you self-diagnosis urself (if its a joke then i rlly dont care)
+- i do not have a fixed dni, but basic dni i guess
+
 
 
 ![](https://64.media.tumblr.com/c4dae9b43ba10cf9ace129b36b2ee5e9/76d8d2234287670b-e2/s250x400/cd95d96f45636748363b39b7a9bdbb0dd11a0799.gifv)
 
 >" You fools! Don't you wish to tame the sun?! Don't you wish to dominate creation!? *Don't you wish to not fear anything!?* ,,
 
-## LIKES
+## INTERESTS
 - jjba
-- snk
-- roblox
-- fnaf
+- rdr
+- l4d
 - osu
-- ponytown
-- anything where i can code:333333 (i suck at it)
-- kny
-- VILLAINS 🗣🗣
+- drawing
+- editing
+
 
 ## MUSIC TASTE
 - deftones
-- doja cat
-- panic! at the disco
-- linked horizon
 - kmfdm
-- korn
-- n like so much stuff more but i no no wanna
+- los bunkers
+- some others
 
 ![](https://64.media.tumblr.com/4b8eaa39b1dc97b6f5241b045b5ca9ec/0d9d6392a423e969-0c/s500x750/a79a060e378bce57436289dfda93f6239beb670b.gifv)
 
@@ -66,7 +60,7 @@
 
 # PONYTOWN
 
-i mostly have local chat *on*, so even though i prefer whispers i might not see yours if the chat is really active!! (i will literally do everything i can to get back to you once i see your message)
+i mostly have local chat *on*, so even though i prefer whispers i might not see yours if the chat is really active (i will literally do everything i can to get back to you once i see your message)
 
 ## BOUNDARIES
 - i dont mind anyone sitting with me or interacting, *as long as you dont make me or others uncomfortable*
