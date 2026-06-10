@@ -12,7 +12,7 @@
 ###### <p align="center"> read these 
 
  
-<sup> <p align="center">  [personal](https://github.com/vanderker/vanderker/edit/main/README.md#--before%E3%85%A4%E3%85%A4%E3%85%A4-you-%E3%85%A4%E3%85%A4%E3%85%A4interact-)ㅤㅤ⤶ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⤷ㅤㅤ [in-game](https://github.com/vanderker/vanderker/edit/main/README.md#-do-%E3%85%A4%E3%85%A4%E3%85%A4not-%E3%85%A4%E3%85%A4%E3%85%A4interact) </p> </sup>
+<sup> <p align="center">  [personal](https://github.com/vanderker#--before%E3%85%A4%E3%85%A4%E3%85%A4-you-%E3%85%A4%E3%85%A4%E3%85%A4interact-)ㅤㅤ⤶ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⤷ㅤㅤ [in-game](https://github.com/vanderker#-in-game) </p> </sup>
   ㅤ 
 
 
