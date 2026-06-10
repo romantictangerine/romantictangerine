@@ -6,7 +6,7 @@
 
 
 
-# ✦ ⋱ CAMILO  〜   _**VAN**_   .
+# ✦ ⋱ CAMILO  〜  _**VAN**_   .
 ###  ㅤ **he** ノ **they**  ㅤ  ♯ ㅤㅤ*esp/eng*,  isfp-t 
  ㅤ  ㅤㅤㅤㅤㅤㅤㅤ **↜ㅤ avoid *her***
  
