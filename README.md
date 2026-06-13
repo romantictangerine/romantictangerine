@@ -29,6 +29,7 @@
 
 ## <p align="center">  **BEFOREㅤㅤㅤ YOU ㅤㅤㅤINTERACT** </p>
 <p align="center"> i have trouble socializing, so i might be quiet if i just met you </p>
+<p align="center"> 
 <p align="center"> i also make nasty jokes once i get more friendly with somebody, 
 <p align="center"> ㅤ   ㅤㅤif this bothers you please let me know, i will fix it ♡
 ㅤ
@@ -39,8 +40,8 @@
  ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
 
 ## <p align="center"> **DO ㅤㅤㅤNOT ㅤㅤㅤINTERACT**
-<p align="center"> i do *not* have a fixed dni, and i don't plan on having one
-<p align="center"> this doesn't mean i will friend anyone, if i dont like you i will block you, or just avoid
+#### <p align="center"> besides basic dni criteria, i do not have anything else 
+#### <p align="center"> this doesn't mean i will friend anyone, if i dont like you i will block you, or just avoid
 
  ![](https://github.com/user-attachments/assets/c37bf71d-733c-4995-bbc5-fb070c50dcce) 
 
